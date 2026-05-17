@@ -21,7 +21,15 @@
 
 <p>Con queste risorse, sarai in grado di sbloccare tutti i personaggi, migliorare ogni statistica e partecipare a ogni evento senza limiti. Questo ti permetterà di vivere un’esperienza di gioco completa e appagante, come mai prima d’ora.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Pocket Champs](https://tinyurl.com/ThumbTattica)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/ThumbTattica">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
 
 <h2>Funzionalità dei Trucchi per Pocket Champs</h2>
 
@@ -86,7 +94,15 @@
 
 <p>Agisci ora. Clicca sul pulsante qui sotto e scopri subito come ottenere <strong>risorse illimitate</strong> grazie ai <strong>trucchi per Pocket Champs</strong>. È la tua occasione per vivere il gioco al massimo delle sue possibilità, senza più limiti o ostacoli.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Pocket Champs](https://tinyurl.com/ThumbTattica)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/ThumbTattica">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
 
 <p>I <strong>trucchi per Pocket Champs</strong> rappresentano una svolta per ogni appassionato del gioco. Offrono risorse illimitate, vantaggi esclusivi e una totale libertà di crescita, tutto gratuitamente e senza rischi. La compatibilità totale con tutti i dispositivi e la semplicità di utilizzo li rendono lo strumento ideale per ogni tipo di giocatore.</p>
 
